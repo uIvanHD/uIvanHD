@@ -4,7 +4,7 @@
 
 🔭 Atualmente não estou em nenhum projeto. 
 
-💬 Caso queira entrar em contato comigo, basta entrar em meu discord **https://discord.gg/5ehFDvMF2A**.
+💬 Caso queira entrar em contato comigo, basta entrar em meu discord **https://discord.gg/XpggMamZ58**.
 
 ----
 
